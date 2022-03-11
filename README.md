@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @haingan911
+- 👋 Hi, I’m Lucy
 - 👀 I love technology 
 - 🌱 I’m a student
 - 💞️ I want to learn more about information technology 
